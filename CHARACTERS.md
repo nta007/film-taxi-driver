@@ -52,7 +52,7 @@ Khoảng 39.
 Nữ chính. Con gái của ông trùm Lê Đức Thành.
 
 ### Tuổi
-Khoảng 35.
+Khoảng 25.
 
 ### Chân dung tổng quát
 - thông minh
@@ -222,11 +222,13 @@ Người chú ở Đà Nẵng. Nhân vật giữ mảnh ghép còn lại của b
 ### Vai trò
 Ông chủ cũ / đầu mối cũ gọi Khang quay lại.
 
+
 ### Chân dung tổng quát
 - lão luyện
 - hiểu đường dây cũ
 - không hoàn toàn tốt, nhưng cũng không đơn giản là phản diện
 - là kiểu người sống đủ lâu trong thế giới ngầm để biết khi nào nên nói thật và khi nào chỉ nói một nửa
+- Bảy Dũng là loại người sống bằng những sợi dây nối giữa bến xe, bến tàu, kho hàng, biên giới, cảng cạn, cửa khẩu, và những cái tên không bao giờ xuất hiện trên giấy tờ. Lão không trực tiếp lái, không trực tiếp bốc, không trực tiếp nổ súng. Lão đứng ở giữa. Loại đứng giữa như thế mới lâu năm, và mới nguy hiểm. Chỉ cần lão nhấc một cú điện thoại, một chiếc xe có thể biến mất khỏi sổ đăng kiểm, một tài xế có thể đổi tên, một chốt kiểm tra có thể quay mặt đi mười phút.
 
 ### Vai trò trong câu chuyện
 - người kéo Khang quay lại guồng cũ
