@@ -32,29 +32,35 @@ Khang không đổi nét mặt, nhưng bàn tay cầm điện thoại khựng l�
 
 Khang tắt máy.
 
-Hắn đặt điện thoại xuống, nhìn màn hình tối đen. Ngoài cửa, mưa vẫn rơi, đều như tiếng gõ móng tay. Hắn châm một điếu thuốc, kéo hơi đầu tiên thật sâu. Khói đi vào ngực rồi mắc lại đâu đó giữa phổi và cổ họng, đắng như ký ức.
+Hắn đặt điện thoại xuống, ánh mắt dừng lại trên màn hình đã tắt ngấm, đen như một cái hố không đáy. Ngoài cửa, mưa vẫn rơi đều, lộp bộp trên mái tôn và mặt đường, nghe như những nhịp gõ khô khốc của móng tay ai đó kiên nhẫn chờ đợi.
+
+Hắn châm thuốc. Tia lửa lóe lên rồi tắt lịm. Khang kéo một hơi thật sâu, giữ lại trong lồng ngực. Khói len vào phổi, nhưng không trôi xuống được, mắc kẹt đâu đó giữa cổ họng và lồng ngực—đắng nghét, như một ký ức cũ không chịu tan.
+
+Điện thoại rung.
 
 Số đó gọi lại.
 
-Lần này Khang để lâu hơn. Đến khi gần tắt, hắn mới nghe.
+Lần này, Khang không vội. Hắn để mặc nó rung, từng nhịp ngắn dội vào không gian yên ắng. Đến khi chuông gần tắt, hắn mới nhấc máy.
 
 “Có chuyện gì?”
 
-Đầu dây kia bật ra một tiếng cười rất mỏng.
+Đầu dây bên kia im lặng một nhịp, rồi bật ra một tiếng cười mỏng như sợi chỉ.
 
-“Nghe giọng là biết chưa chết. Tốt.”
+“Tôi vẫn nhớ cái giọng này.”
+
+Khang nhếch môi, nhưng ánh mắt vẫn lạnh.
 
 “Ông muốn gì?”
 
-“Muốn biết cậu còn nhớ đường không.”
+“Muốn làm ăn.” Giọng nói kia hạ thấp, kéo dài từng chữ như đang nhấm nháp sự im lặng. “…cậu còn giữ chiếc xe đó không?”
 
-Khang dụi tàn thuốc xuống gạt tàn, mạnh tay hơn cần thiết.
+Khang không đáp. Hắn chỉ cúi xuống, dụi mạnh đầu thuốc vào gạt tàn. Tro tàn vỡ vụn, rơi lả tả—mạnh hơn mức cần thiết, như thể hắn đang nghiền nát một điều gì đó không nhìn thấy.
 
 “Tôi bỏ rồi.”
 
-Giọng người đàn ông vẫn đều đều. “Bỏ nghề. Bỏ người. Bỏ luôn cả mấy số cũ. Nhưng có những thứ bỏ không xong đâu, Khang.”
-
-Khang ngắt lời. “Nếu ông gọi để nói chuyện đời, tôi cúp.”
+Giọng người đàn ông vẫn đều đều.
+“Tôi biết.”
+“…nhưng chuyện này cần cậu.”
 
 Một khoảng lặng. Rồi đầu dây kia nói chậm, rõ từng chữ:
 
