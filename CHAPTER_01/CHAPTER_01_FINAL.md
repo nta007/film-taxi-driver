@@ -64,23 +64,15 @@ Giọng người đàn ông vẫn đều đều.
 
 Một khoảng lặng. Rồi đầu dây kia nói chậm, rõ từng chữ:
 
-“Con bé ngoài Hà Nội vẫn khỏe chứ?”
+“nguồn tin báo răng có kẻ đang tìm thông tin bé Nhi ”
 
 Căn phòng nhỏ như bị rút hết không khí.
 
 Khang không cử động. Chỉ có quai hàm hắn siết lại. Một giọt nước mưa từ mái tôn rơi xuống nền xi măng, kêu tách.
 
-“Ai cho ông nhắc tới nó?”
+“Tôi cần biết ai?”
 
-“Không ai cho. Tôi nhắc vì phải nhắc.”
-
-Giọng kia bớt bỡn cợt, chuyển sang thứ âm sắc lạnh của người từng quen ra lệnh. “Cậu nghe cho kỹ. Tôi chưa động tới con cậu. Nhưng ngoài kia bắt đầu có người hỏi tên cũ của cậu.”
-
-Khang nhìn ra con hẻm tối, nơi nước mưa đang kéo rác trôi dọc mép đường. Hắn nghe tim mình đập chậm, nặng. Cảm giác này hắn ghét. Cảm giác cũ. Cảm giác của những đêm phải tính xem rẽ trái hay rẽ phải để sáng mai còn mở mắt.
-
-“Ông là ai?” hắn hỏi, dù đã biết.
-
-“Bảy Dũng.”
+“Tôi không chắc, nhưng có vẻ là đàn em của lão Thành.”
 
 Cái tên rơi xuống như một cục chì.
 
@@ -91,6 +83,18 @@ Nhưng trí nhớ con người có những ngăn kéo hỏng. Chỉ cần một 
 Hắn thấy lại kính chắn gió loang nước đêm hôm đó. Thấy đèn pha đối diện nổ tung thành một khối sáng trắng. Thấy bàn tay Ngọc Mai ôm bụng, miệng gọi tên hắn mà không thành tiếng. Rồi tiếng kim loại xoắn lại, bén ngọt, như ai cưa ngang đời mình.
 
 Khang mở mắt. Điếu thuốc trên tay đã cháy quá nửa.
+
+Giọng kia bớt bỡn cợt, chuyển sang thứ âm sắc lạnh của người từng quen ra lệnh. “Cậu nghe cho kỹ. Tôi chưa động tới con cậu. Nhưng ngoài kia bắt đầu có người hỏi tên cũ của cậu.”
+
+Khang nhìn ra con hẻm tối, nơi nước mưa đang kéo rác trôi dọc mép đường. Hắn nghe tim mình đập chậm, nặng. Cảm giác này hắn ghét. Cảm giác cũ. Cảm giác của những đêm phải tính xem rẽ trái hay rẽ phải để sáng mai còn mở mắt.
+
+“Mẹ kiếp, bọn nó muốn gì ở tôi?”
+
+"không phải muốn gì ở cậu, mà muốn trừ khử" nghe này.
+
+"Ba thằng lái xe cho tôi, 2 thằng mất tích, 1 thằng thấy xác dưới xông"
+
+"Tôi e, người tiếp theo là cậu"
 
 “Ông muốn gì?” hắn hỏi.
 
@@ -115,14 +119,6 @@ Bên kia có tiếng quẹt bật lửa. Có lẽ lão cũng đang hút thuốc.
 “Vì cậu là thằng duy nhất tôi biết còn sống mà vừa biết chạy, vừa biết im miệng.”
 
 Khang nhìn bàn tay mình. Vết sẹo mờ chạy ngang đốt ngón tay phải vẫn còn đó. Quà của một đêm mở cửa xe bằng dao thay vì chìa khóa.
-
-“Tìm thằng khác.”
-
-“Tôi tìm rồi.”
-
-“Thì để nó đi.”
-
-“Nó chết rồi.”
 
 Lần này Bảy Dũng để cho câu nói nằm yên vài giây rồi mới tiếp. “Không phải một thằng. Ba thằng. Hai thằng mất tích. Một thằng được vớt dưới kênh, tay còn còng vô lăng.”
 
