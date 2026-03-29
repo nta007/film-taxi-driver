@@ -17,7 +17,7 @@ Một cựu tài xế 39 tuổi, từng dính sâu vào các chuyến vận chuy
 
 ---
 
-## Nhân vật chính
+## Nhân vật chính - Trần Vũ Khang
 - Giới tính: nam
 - Tuổi: khoảng 39
 - Nghề cũ: tài xế taxi, từng nhận các chuyến vận chuyển ngầm
@@ -40,7 +40,7 @@ Trong vụ đó:
 - luôn nghi ngờ rằng hôm đó không hề ngẫu nhiên
 - không cần tiền, chỉ cần bình yên và an toàn cho con gái
 
-### Con gái
+### Con gái - Trần An Nhi
 - khoảng 3 tuổi
 - đang được dì nuôi và chăm sóc ở Hà Nội
 - nam chính phải giấu kín quan hệ cha con vì từng gây thù với giới xã hội đen
@@ -61,7 +61,7 @@ Một ông chủ cũ gọi hắn quay lại để vận chuyển một "đơn h�
 
 ---
 
-## Nữ chính
+## Nữ chính - Lê Khánh Linh
 - Giới tính: nữ
 - Tuổi: khoảng 35
 - Là con gái của một ông trùm xã hội đen
@@ -85,8 +85,8 @@ Cô còn là chìa khóa dẫn tới một kho báu lịch sử:
 - được giấu từ thời chiến tranh Việt Nam - Mỹ
 
 ### Cấu trúc bí mật
-- cha cô giữ một phần bí mật
-- người chú ở Đà Nẵng giữ phần còn lại
+- cha cô, Lê Đức Thành, giữ một phần bí mật
+- người chú ở Đà Nẵng, Nguyễn Hữu Nhân, giữ phần còn lại
 - chỉ khi cô còn sống và tới được Đà Nẵng, bí mật mới có thể mở ra trọn vẹn
 
 ### Lưu ý phát triển
@@ -94,9 +94,9 @@ Chi tiết "100.000 thỏi vàng" nên được xử như một huyền thoại 
 
 ---
 
-## Phản diện chính
+## Phản diện chính - Trần Kim Long
 - là tên phó tướng thân tín cũ của cha cô
-- phản chủ, giết ông trùm
+- phản chủ, giết ông trùm Lê Đức Thành
 - mục tiêu:
   - cướp quyền lực trong bang
   - tìm ra kho vàng
@@ -143,4 +143,4 @@ Các bước nên làm tiếp:
 ---
 
 ## Tóm tắt siêu ngắn
-Một cựu tài xế 39 tuổi, từng dính sâu vào các chuyến vận chuyển ngầm, sống ẩn mình sau bi kịch mất vợ và phải giấu kín con gái nhỏ ở Hà Nội, buộc phải quay lại cầm lái khi nhận nhiệm vụ đưa con gái của một ông trùm xã hội đen từ TP.HCM ra Đà Nẵng. Người phụ nữ ấy không chỉ đang bị truy sát sau cái chết của cha mình, mà còn là chìa khóa sống dẫn tới bí mật về kho vàng chiến tranh thất lạc — thứ có thể làm nổ tung cả thế giới ngầm lẫn quá khứ mà nam chính từng cố chôn vùi.
+Trần Vũ Khang, một cựu tài xế 39 tuổi từng dính sâu vào các chuyến vận chuyển ngầm, sống ẩn mình sau bi kịch mất vợ và phải giấu kín con gái nhỏ Trần An Nhi ở Hà Nội, buộc phải quay lại cầm lái khi nhận nhiệm vụ đưa Lê Khánh Linh — con gái của ông trùm Lê Đức Thành — từ TP.HCM ra Đà Nẵng. Người phụ nữ ấy không chỉ đang bị truy sát sau cái chết của cha mình, mà còn là chìa khóa sống dẫn tới bí mật về kho vàng chiến tranh thất lạc — thứ có thể làm nổ tung cả thế giới ngầm lẫn quá khứ mà Khang từng cố chôn vùi.

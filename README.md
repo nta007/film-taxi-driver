@@ -8,9 +8,9 @@ Repo phát triển truyện / kịch bản về:
 
 ## File chính
 - `STORY.md`: bản tóm tắt cốt truyện và các chi tiết đã chốt
+- `CHARACTERS.md`: hồ sơ nhân vật và mạng quan hệ
 
 ## Hướng phát triển
-- đặt tên nhân vật
-- hồ sơ nhân vật
+- hoàn thiện hồ sơ nhân vật
 - cấu trúc 3 hồi
 - chương 1 / opening scene
