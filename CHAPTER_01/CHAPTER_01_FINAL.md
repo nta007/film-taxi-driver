@@ -1,15 +1,16 @@
 # Chương 1 — Cuộc gọi trước bình minh
 
 3 giờ 17 phút.
-Mưa ở Sài Gòn không rơi ào xuống. Nó rỉ ra từ bầu trời như dầu đen thấm qua một miếng giẻ cũ. Từng hạt nhỏ, dai, đủ để mặt đường bóng lên như một tấm kính bẩn, đủ để đèn xe kéo dài thành những vệt màu nhòe nhoẹt.
 
-Khang ngồi sau quầy kính của tiệm sửa xe, nhìn mưa chảy thành dòng trên tấm cửa cuốn khép hờ. Ba giờ mười bảy phút sáng. Giờ này người bình thường ngủ. Người làm đêm thì hoặc đang kiếm tiền, hoặc đang chạy trốn khỏi một thứ gì đó. Sài Gòn lúc gần sáng luôn là thành phố của hạng người thứ hai.
+Mưa ở Sài Gòn không ào xuống. Nó rỉ ra từ bầu trời như dầu đen thấm qua một miếng giẻ cũ. Từng hạt nhỏ, dai, đủ để mặt đường bóng lên như một tấm kính bẩn, đủ để đèn xe kéo dài thành những vệt màu nhòe nhoẹt.
 
-Chiếc quạt treo tường quay lạch cạch. Mùi nhớt máy, khói thuốc cũ và nước mưa quyện lại thành thứ mùi Khang đã quen đến mức không còn để ý nữa. Trên bàn là một ly cà phê đen đã nguội. Bên cạnh là cuốn sổ ghi nợ của gara. Trang mở ra chi chít những con số nhỏ, thẳng, lạnh như biên bản.
+Khang ngồi sau quầy kính của tiệm sửa xe, nhìn mưa chảy thành dòng trên tấm cửa cuốn khép hờ. Ba giờ mười bảy phút sáng. Giờ này người bình thường ngủ. Người làm đêm thì hoặc đang kiếm tiền, hoặc đang chạy khỏi một thứ gì đó. Sài Gòn lúc gần sáng luôn là thành phố của hạng người thứ hai.
 
-Khang mặc áo thun xám, tay áo xắn cao, hai cẳng tay gân lên dưới ánh đèn neon. Hắn vừa thay xong bộ bố thắng cho một chiếc Innova chạy dịch vụ. Công việc ổn định hơn nghề cũ, ít tiền hơn, ít rủi ro hơn. Ít nhất, đó là điều hắn vẫn tự nhắc mình mỗi ngày.
+Chiếc quạt treo tường quay lạch cạch. Mùi nhớt máy, khói thuốc cũ và nước mưa quyện lại thành thứ mùi Khang đã quen đến mức không còn để ý. Trên bàn là một ly cà phê đen đã nguội. Bên cạnh là cuốn sổ ghi nợ của gara. Trang mở ra chi chít những con số nhỏ, thẳng, lạnh như biên bản.
 
-Ngoài đường, một chiếc container ì ạch bò qua ngã tư, tiếng máy nặng như tiếng thở của con thú già. Khang liếc nhìn đồng hồ treo tường rồi tắt mỏ hàn. Hắn định kéo cửa xuống thêm một nấc, chợp mắt nửa tiếng trước khi trời sáng.
+Khang mặc áo thun xám, tay áo xắn cao, hai cẳng tay gân lên dưới ánh đèn neon. Hắn vừa thay xong bộ bố thắng cho một chiếc Innova chạy dịch vụ. Công việc này ổn định hơn nghề cũ. Ít tiền hơn, ít rủi ro hơn. Ít nhất, đó là điều hắn vẫn tự nhắc mình mỗi ngày.
+
+Ngoài đường, một chiếc container ì ạch bò qua ngã tư, tiếng máy nặng như hơi thở của con thú già. Khang liếc đồng hồ treo tường rồi tắt mỏ hàn. Hắn định kéo cửa xuống thêm một nấc, chợp mắt nửa tiếng trước khi trời sáng.
 
 Điện thoại rung.
 
@@ -17,7 +18,7 @@ Một cái rung ngắn. Dừng. Rồi rung tiếp.
 
 Màn hình sáng lên trên mặt bàn inox. Một dãy số lạ. Không tên. Không lưu.
 
-Khang nhìn nó vài giây. Ở đời hắn, những cuộc gọi đến giờ này hiếm khi mang theo điều gì tốt đẹp. Hắn để máy rung hết nhịp đầu. Đến nhịp thứ hai, hắn nhấc lên.
+Khang nhìn nó vài giây. Trong đời hắn, những cuộc gọi tới giờ này hiếm khi mang theo điều gì tốt đẹp. Hắn để máy rung hết nhịp đầu. Đến nhịp thứ hai, hắn mới nhấc lên.
 
 Đầu dây bên kia im lặng một chút. Chỉ có tiếng nhiễu rất nhỏ, như gió lùa qua khe cửa.
 
@@ -31,7 +32,7 @@ Khang không đổi nét mặt, nhưng bàn tay cầm điện thoại khựng l�
 
 Khang tắt máy.
 
-Hắn đặt điện thoại xuống, nhìn màn hình tối đen. Ngoài cửa, mưa vẫn rơi, đều như tiếng gõ móng tay. Hắn châm một điếu thuốc, kéo hơi đầu tiên thật sâu. Khói đi vào ngực rồi mắc lại ở đâu đó giữa phổi và cổ họng, đắng như ký ức.
+Hắn đặt điện thoại xuống, nhìn màn hình tối đen. Ngoài cửa, mưa vẫn rơi, đều như tiếng gõ móng tay. Hắn châm một điếu thuốc, kéo hơi đầu tiên thật sâu. Khói đi vào ngực rồi mắc lại đâu đó giữa phổi và cổ họng, đắng như ký ức.
 
 Số đó gọi lại.
 
@@ -43,7 +44,7 @@ Lần này Khang để lâu hơn. Đến khi gần tắt, hắn mới nghe.
 
 “Nghe giọng là biết chưa chết. Tốt.”
 
-“Anh muốn gì?”
+“Ông muốn gì?”
 
 “Muốn biết cậu còn nhớ đường không.”
 
@@ -53,7 +54,7 @@ Khang dụi tàn thuốc xuống gạt tàn, mạnh tay hơn cần thiết.
 
 Giọng người đàn ông vẫn đều đều. “Bỏ nghề. Bỏ người. Bỏ luôn cả mấy số cũ. Nhưng có những thứ bỏ không xong đâu, Khang.”
 
-Khang ngắt lời: “Nếu anh gọi để nói chuyện đời, tôi cúp.”
+Khang ngắt lời. “Nếu ông gọi để nói chuyện đời, tôi cúp.”
 
 Một khoảng lặng. Rồi đầu dây kia nói chậm, rõ từng chữ:
 
@@ -63,21 +64,21 @@ Căn phòng nhỏ như bị rút hết không khí.
 
 Khang không cử động. Chỉ có quai hàm hắn siết lại. Một giọt nước mưa từ mái tôn rơi xuống nền xi măng, kêu tách.
 
-“Ai cho anh nhắc tới nó?”
+“Ai cho ông nhắc tới nó?”
 
-“Không ai cho. Tôi nhắc vì Tôi phải nhắc.”
+“Không ai cho. Tôi nhắc vì phải nhắc.”
 
-Giọng kia bớt bỡn cợt, chuyển sang thứ âm sắc lạnh của người từng quen ra lệnh. “cậu nghe cho kỹ. Tôi chưa động tới con cậu. Nhưng ngoài kia bắt đầu có người hỏi tên cũ của cậu.”
+Giọng kia bớt bỡn cợt, chuyển sang thứ âm sắc lạnh của người từng quen ra lệnh. “Cậu nghe cho kỹ. Tôi chưa động tới con cậu. Nhưng ngoài kia bắt đầu có người hỏi tên cũ của cậu.”
 
-Khang nhìn ra con hẻm tối, nơi nước mưa đang kéo rác trôi dọc theo mép đường. Hắn nghe tim mình đập chậm, nặng. Cảm giác này hắn ghét. Cảm giác cũ. Cảm giác của những đêm phải tính xem rẽ trái hay rẽ phải để sáng mai còn mở mắt.
+Khang nhìn ra con hẻm tối, nơi nước mưa đang kéo rác trôi dọc mép đường. Hắn nghe tim mình đập chậm, nặng. Cảm giác này hắn ghét. Cảm giác cũ. Cảm giác của những đêm phải tính xem rẽ trái hay rẽ phải để sáng mai còn mở mắt.
 
-“Anh là ai?” hắn hỏi, dù đã biết.
+“Ông là ai?” hắn hỏi, dù đã biết.
 
 “Bảy Dũng.”
 
 Cái tên rơi xuống như một cục chì.
 
-Khang tựa lưng vào ghế nhựa, ngước nhìn bóng đèn trắng rung rung trên đầu. Sáu năm rồi. Sáu năm không gặp, không hỏi, không dính dáng. Hắn tưởng cái tên đó đã chìm luôn cùng đống số điện thoại đập bỏ và những tuyến đường bị hắn cố ý quên đi.
+Khang tựa lưng vào ghế nhựa, ngước nhìn bóng đèn trắng rung rung trên đầu. Sáu năm rồi. Sáu năm không gặp, không hỏi, không dính dáng. Hắn tưởng cái tên đó đã chìm luôn cùng đống sim đập bỏ và những tuyến đường bị cố ý quên đi.
 
 Nhưng trí nhớ con người có những ngăn kéo hỏng. Chỉ cần một cú giật là bung ra.
 
@@ -85,7 +86,7 @@ Hắn thấy lại kính chắn gió loang nước đêm hôm đó. Thấy đèn
 
 Khang mở mắt. Điếu thuốc trên tay đã cháy quá nửa.
 
-“Ông muốn gì,” hắn bảo.
+“Ông muốn gì?” hắn hỏi.
 
 Bảy Dũng không vội. “Cậu vẫn như xưa, đi thẳng vào vấn đề.”
 
@@ -117,7 +118,7 @@ Khang nhìn bàn tay mình. Vết sẹo mờ chạy ngang đốt ngón tay phả
 
 “Nó chết rồi.”
 
-Lần này Bảy Dũng để cho câu nói nằm yên vài giây rồi mới tiếp: “Không phải một thằng. Ba thằng. Hai thằng mất tích. Một thằng được vớt dưới kênh, tay còn còng vô lăng.”
+Lần này Bảy Dũng để cho câu nói nằm yên vài giây rồi mới tiếp. “Không phải một thằng. Ba thằng. Hai thằng mất tích. Một thằng được vớt dưới kênh, tay còn còng vô lăng.”
 
 Tiệm sửa xe bỗng nhỏ lại. Tiếng quạt, tiếng mưa, tiếng neon rè rè — mọi thứ nghe xa hơn một chút.
 
@@ -125,15 +126,15 @@ Tiệm sửa xe bỗng nhỏ lại. Tiếng quạt, tiếng mưa, tiếng neon r
 
 “Không. Tôi đang nói giá thị trường.”
 
-Khang đứng dậy, đi ra cửa. Hắn vén tấm bạt nhựa che mưa, nhìn con hẻm vắng. Một con chó vàng ướt sũng đang nằm co dưới mái hiên đối diện. Xa hơn là đèn đỏ nhấp nháy ở ngã tư như con mắt mất ngủ.
+Khang đứng dậy, đi ra cửa. Hắn vén tấm bạt nhựa che mưa, nhìn con hẻm vắng. Một con chó vàng ướt sũng nằm co dưới mái hiên đối diện. Xa hơn là đèn đỏ nhấp nháy ở ngã tư như con mắt mất ngủ.
 
-“Ông Bảy,” hắn nói, giọng thấp đi, “nghe rõ đây. Tôi không còn nợ ai. Cũng không nhận việc từ ai. Đời của tôi bây giờ đơn giản lắm. Sửa xe, ăn cơm, ngủ. Hết.”
+“Ông Bảy,” hắn nói, giọng thấp đi, “nghe rõ đây. Tôi không còn nợ ai. Cũng không nhận việc từ ai. Đời tôi bây giờ đơn giản lắm. Sửa xe, ăn cơm, ngủ. Hết.”
 
 “Đời cậu mà đơn giản thì người chết biết khóc mất.”
 
 Khang im.
 
-Bảy Dũng nói tiếp, chậm rãi như đang lựa từng quân bài: “Cậu nghĩ vụ năm đó là tai nạn thật à?”
+Bảy Dũng nói tiếp, chậm rãi như đang lựa từng quân bài. “Cậu nghĩ vụ năm đó là tai nạn thật à?”
 
 Tay Khang siết chặt điện thoại.
 
@@ -147,9 +148,9 @@ Khang không nói.
 
 “Hồ sơ hiện trường biến mất vài tờ trước khi lên bàn điều tra.”
 
-Một tia sét không tiếng lóe lên đâu đó sau đám mây, chỉ đủ làm mặt đường bạc trắng trong một chớp mắt.
+Một tia chớp không tiếng lóe lên đâu đó sau đám mây, chỉ đủ làm mặt đường bạc trắng trong một chớp mắt.
 
-“Và biết,” Bảy Dũng nói, “người đang săn chuyến hàng tối nay có thể dính tới vụ đó.”
+“Và người đang săn chuyến đi tối nay,” Bảy Dũng nói, “có thể dính tới vụ đó.”
 
 Trong đầu Khang, một thứ gì rất lâu rồi nằm im bỗng cựa mình.
 
@@ -163,31 +164,43 @@ Nhưng sáu năm qua, hắn không đào nữa. Không phải vì tin. Mà vì c
 
 “Người nào?”
 
-“Tôi không biết, sáng qua có người đăng tin trên mục rao vặt, cần tìm người vận chuyển, kèm dòng mã của lão Thành.”
+“Tôi chưa gặp. Tin lên từ mục rao vặt cũ, đúng cái kênh ngày xưa tụi mình dùng để nhắn việc kín. Ai trong mạng còn sống đều biết quy ước đó. Người đăng để lại một dòng mã khẩn của Lê Đức Thành, thứ lão chỉ dùng khi việc đã tới chân tường.”
 
 Tên đó khiến Khang nheo mắt.
 
 Lê Đức Thành. Một cái tên từng có trọng lượng đủ để làm vài con phố tối đi. Vỏ ngoài là doanh nhân. Ruột gan là bến tàu, sòng bài, bảo kê, hàng lậu. Người như vậy không chết gọn, càng không chết mà không để lại mùi máu.
 
-“lão chết rồi?”
+“Lão chết rồi?”
 
-“Chết đêm hôm trước qua.”
+“Chết đêm hôm trước.”
 
 “Ai làm?”
 
-“Người của ông ta. Hoặc người từng là người của ông ta.”
+“Người của lão. Hoặc người từng là người của lão.”
 
 “Vậy liên quan gì tới tôi?”
 
-“Có đồ cần chuyển Đà Nẵng. Ngay. Không máy bay, không tàu, không người lạ. Chỉ đường bộ.”
+“Người thường đăng lên rao vặt, tôi sẽ cho xác minh trước, rồi mới tìm cách liên hệ. Case này khác. Dòng mã khẩn là của Thành, không ai ngoài mấy đầu mối cũ biết. Tôi nhìn là biết đây không phải trò nhử rẻ tiền.”
+
+Khang không nói gì.
+
+Bảy Dũng nói tiếp: “Tôi đã kiểm được hai đầu. Một, tin đăng đúng nhịp mã cũ. Hai, chưa đầy một giờ sau đã có người quét sạch dấu ở mấy chỗ Thành hay dùng. Nghĩa là ngoài kia cũng hiểu thứ đó là thật.”
+
+“Và ông muốn tôi lái xe đưa người đó đi?”
+
+“Đúng.”
+
+“Đi đâu?”
+
+“Ra khỏi Sài Gòn trước mắt. Đích cuối tính sau. Không máy bay, không tàu, không người lạ. Chỉ đường bộ.”
 
 Khang cười nhạt. “Ông tìm nhầm tài xế rồi.”
 
-“Không. Tôi tìm đúng người duy nhất còn nhớ cách biến một chiếc xe thành cái bóng.”
+“Không. Tôi tìm đúng thằng duy nhất còn nhớ cách biến một chiếc xe thành cái bóng.”
 
-Khang không đáp. Gió mang hơi nước lạnh tạt vào cổ áo hắn.
+Khang im. Gió mang hơi nước lạnh tạt vào cổ áo hắn.
 
-Bảy Dũng hạ giọng: “Nghe tôi lần cuối. Nếu cậu gật đầu, cậu có cơ hội biết chuyện năm đó. Nếu cậu lắc đầu, có thể sáng mai vẫn mở tiệm bình thường. Cũng có thể một tuần nữa có người ra tới Hà Nội hỏi thăm con bé. Tôi không chắc. Tôi chỉ biết nước bắt đầu dâng rồi.”
+Bảy Dũng hạ giọng. “Nghe tôi lần cuối. Nếu cậu gật đầu, cậu có cơ hội biết chuyện năm đó. Nếu cậu lắc đầu, có thể sáng mai cậu vẫn mở tiệm bình thường. Cũng có thể một tuần nữa có người ra tới Hà Nội hỏi thăm con bé. Tôi không chắc. Tôi chỉ biết nước bắt đầu dâng rồi.”
 
 “Ông đem con tôi ra ép tôi?”
 
@@ -195,7 +208,7 @@ Bảy Dũng hạ giọng: “Nghe tôi lần cuối. Nếu cậu gật đầu, c
 
 “Khác gì nhau.”
 
-“Khác chứ.” Bảy Dũng ngắt một nhịp. “Tôi còn đang gọi cho cậu. Nếu Tôi muốn ép, Tôi đã không mất thời gian.”
+“Khác chứ.” Bảy Dũng ngắt một nhịp. “Tôi còn đang gọi cho cậu. Nếu tôi muốn ép, tôi đã không mất thời gian.”
 
 Khang nhìn bóng mình phản lên tấm kính cửa: một gã đàn ông gần bốn mươi, mắt trũng, vai rộng, đứng một mình trong thứ ánh sáng bệnh hoạn của đèn neon. Trông hắn không giống người có thể bắt đầu lại. Chỉ giống người tạm thời chưa chết.
 
@@ -215,7 +228,7 @@ Khang kéo ghế ngồi xuống. Hắn mở ngăn bàn, lấy ra một chiếc c
 
 Ngoài trời, đêm đang trôi về phía rạng sáng. Thứ màu xám lờ mờ bắt đầu nổi lên trên mép mái nhà, làm mọi vật hiện ra rõ hơn nhưng không bớt bẩn.
 
-Khang tắt đèn gara, chỉ chừa lại bóng neon ngoài hiên. Hắn kéo cửa cuốn xuống, tiếng sắt nghiến trên ray nghe như tiếng ai cà dao vào đá.
+Khang tắt đèn gara, chỉ chừa lại bóng neon ngoài hiên. Hắn kéo cửa cuốn xuống, tiếng sắt nghiến trên ray nghe như ai cà dao vào đá.
 
 Trước khi khóa ổ, hắn dừng lại.
 
@@ -228,29 +241,29 @@ Khang tra chìa khóa, xoay một vòng dứt khoát.
 Bốn giờ. Cầu Chữ Y.
 Sài Gòn vẫn mưa.
 
-Khang đến sớm hơn mười lăm phút. Sài Gòn lúc bốn giờ sáng chìm trong màn mưa lất phất, những hạt nước li ti quấn vào ánh đèn đường vàng vọt, tạo thành một lớp sương mỏng mờ đục. Mặt đường loang loáng nước, phản chiếu ánh sáng nhòe nhoẹt như những vệt ký ức chưa kịp tan.
+Khang đến sớm mười lăm phút. Thành phố lúc bốn giờ sáng chìm trong màn mưa lất phất, những hạt nước li ti quấn vào ánh đèn đường vàng vọt, tạo thành một lớp sương mỏng đục. Mặt đường loang loáng nước, phản chiếu ánh sáng nhòe nhoẹt như những vệt ký ức chưa kịp tan.
 
-Vừa dừng lại dưới chân cầu, Khang đã thấy Bảy Dũng đứng đó từ bao giờ—dáng người lặng im dưới tán bê tông, khói thuốc lẫn trong hơi mưa. Cảnh tượng ấy khiến anh khựng lại một nhịp. Không bình thường. Từ trước đến nay, ông ta chưa từng đến trước ai, lại càng không phải vào một giờ như thế này.
+Vừa dừng lại dưới chân cầu, Khang đã thấy Bảy Dũng đứng đó từ lúc nào — dáng người lặng im dưới tán bê tông, khói thuốc lẫn trong hơi mưa. Cảnh đó khiến hắn khựng lại một nhịp. Không bình thường. Từ trước đến nay, lão hiếm khi tới trước ai, lại càng không phải vào một giờ như thế này.
 
-Gió sông thổi hun hút, mang theo hơi nước lạnh len qua từng lớp áo. Khang dắt xe chậm rãi, bánh xe nghiến nhẹ lên mặt đường ướt, mắt đảo quanh tìm chỗ gửi. Anh lách chiếc Honda vào một khe hẹp giữa hai chiếc ô tô đang đẫm nước mưa, ép sát từng chút một, như thể muốn giấu nó đi khỏi cái không gian tĩnh lặng đến đáng ngờ này. Khóa xe xong, anh vẫn đứng lại một giây, lắng nghe tiếng mưa rơi lộp bộp trên kim loại và bê tông.
+Gió sông thổi hun hút, mang theo hơi nước lạnh len qua từng lớp áo. Khang dắt xe chậm rãi, bánh nghiến nhẹ lên mặt đường ướt, mắt đảo quanh một vòng rồi lách chiếc Honda vào khe hẹp giữa hai chiếc ô tô đang đẫm mưa. Khóa xe xong, hắn vẫn đứng lại một giây, lắng nghe tiếng mưa rơi lộp bộp trên kim loại và bê tông.
 
-Cách đó không xa, chiếc Mercedes đen nằm im lìm nhưng động cơ đã nổ từ lúc nào, tiếng máy trầm đục vang lên đều đều trong không gian ẩm ướt. Đèn pha hắt ra một quầng sáng trắng nhạt xuyên qua màn mưa. Khang kéo cao cổ áo, bước nhanh lại, mở cửa rồi ngồi vào trong.
+Cách đó không xa, chiếc Mercedes đen nằm im nhưng động cơ đã nổ sẵn, tiếng máy trầm đục vang đều trong không gian ẩm ướt. Đèn pha hắt ra một quầng sáng trắng nhạt xuyên qua màn mưa. Khang kéo cao cổ áo, bước lại, mở cửa rồi ngồi vào trong.
 
-Cánh cửa đóng lại, ngăn cách anh với tiếng mưa bên ngoài. Không ai nói gì. Chỉ có tiếng cần gạt nước quét đều trên kính, nhịp nhàng như một lời nhắc nhở. Chiếc xe lăn bánh, rời khỏi chân cầu, lao về phía bến cảng mờ mịt trong mưa sớm—nơi mà cả hai đều biết, đang chờ đợi một điều không hề dễ chịu.
+Cánh cửa đóng lại, ngăn tiếng mưa bên ngoài. Không ai nói gì. Chỉ có tiếng cần gạt nước quét đều trên kính. Chiếc xe lăn bánh, rời chân cầu, lao về phía bến cảng mờ mịt trong mưa sớm.
 
 ---
 
 Rạng sáng ở bến cảng không có màu xanh của bình minh. Nó chỉ nhạt dần từ đen sang chì, như một vết bầm đang lan trên bầu trời.
 
-Gió từ phía sông lùa qua những dãy container xếp chồng, mang theo mùi nước lợ, dầu máy và sắt rỉ. Cần cẩu đứng im như mấy bộ xương khổng lồ. Xa hơn, một con tàu hàng thở từng hồi nặng nề trong màn sương thấp. Đèn vàng treo trên cột thép hắt xuống nền bê tông những khoảng sáng đứt quãng, đủ để mọi thứ hiện ra nửa vời rồi lại chìm vào tối.
+Gió từ phía sông lùa qua những dãy container xếp chồng, mang theo mùi nước lợ, dầu máy và sắt rỉ. Cần cẩu đứng im như những bộ xương khổng lồ. Xa hơn, một con tàu hàng thở từng hồi nặng nề trong màn sương thấp. Đèn vàng treo trên cột thép hắt xuống nền bê tông những khoảng sáng đứt quãng, đủ để mọi thứ hiện ra nửa vời rồi lại chìm vào tối.
 
 Bảy Dũng cho xe lọt vào giữa hai dãy container xanh xám rồi dừng máy.
 
-Khang nói: Hai lối ra. Một đường chính đủ cho đầu kéo quay. Một đường phụ sát mép nước, hẹp hơn nhưng tối. Ba camera gắn trên cột, một cái chết đèn. Chòi bảo vệ bỏ trống. Không thấy xe lạ trong vùng đèn gần nhất.
+Khang đảo mắt một vòng. “Hai lối ra. Một đường chính đủ cho đầu kéo quay. Một đường phụ sát mép nước, hẹp hơn nhưng tối. Ba camera trên cột, một cái chết đèn. Chòi bảo vệ bỏ trống. Chưa thấy xe lạ trong vùng sáng gần nhất.”
 
 Cả hai xuống xe.
 
-Bảy Dũng đã đứng sẵn cạnh một cột thép, khoác áo gió sẫm, một tay đút túi, một tay cầm điếu thuốc cháy đỏ. Lão già hơn lần cuối Khang gặp, tóc bạc thêm, mặt sạm hơn, nhưng vẫn đứng theo kiểu người không quen dựa ai.
+Bảy Dũng đứng cạnh một cột thép, khoác áo gió sẫm, một tay đút túi, một tay cầm điếu thuốc cháy đỏ. Lão già hơn lần cuối Khang gặp, tóc bạc thêm, mặt sạm hơn, nhưng vẫn đứng theo kiểu người không quen dựa ai.
 
 “Đúng giờ,” lão nói.
 
@@ -260,11 +273,11 @@ Bảy Dũng đã đứng sẵn cạnh một cột thép, khoác áo gió sẫm, 
 
 “Nhờ thế tôi chưa nằm dưới sông.”
 
-Bảy Dũng rít một hơi thuốc, nhìn anh từ đầu tới chân. “cậu sống kín thật.”
+Bảy Dũng rít một hơi thuốc, nhìn Khang từ đầu tới chân. “Cậu sống kín thật.”
 
 “Còn sống kín là còn sống.”
 
-Lão gật đầu, không khen cũng không mỉa. Giữa hai người không còn thứ xã giao nào đáng dùng.
+Lão gật đầu. Giữa hai người không còn thứ xã giao nào đáng dùng.
 
 “Hàng đâu?” Khang hỏi.
 
@@ -280,19 +293,17 @@ Lão gật đầu, không khen cũng không mỉa. Giữa hai người không c�
 
 Khang liếc lão. “Ông gọi là con bé?”
 
-“Đúng.”
-
-Bảy Dũng cười nhạt. “Cậu nhìn rồi tự đánh giá.”
+“Ừ. Cậu nhìn rồi tự đánh giá.”
 
 Gió rít qua khe container. Khang quay đầu nhìn khoảng tối phía trước.
 
-Một bóng người tách dần khỏi vùng đen giữa hai khối thép. Đi không nhanh, không chậm. Không hốt hoảng. Không ngó ngang liếc dọc kiểu kẻ đang mất vía. Chỉ bước đều, đầu hơi cúi vì gió, như người biết rõ mình đang đi vào chỗ nguy hiểm mà vẫn giữ được nhịp thở.
+Một bóng người tách dần khỏi vùng đen giữa hai khối thép. Đi không nhanh, không chậm. Không hốt hoảng. Không ngó ngang liếc dọc kiểu kẻ mất vía. Chỉ bước đều, đầu hơi cúi vì gió, như người biết rõ mình đang đi vào chỗ nguy hiểm mà vẫn giữ được nhịp thở.
 
-Khi đi vào vùng sáng, cô hiện rõ hơn.
+Khi vào vùng sáng, cô hiện rõ hơn.
 
 Mũ lưỡi trai đen kéo thấp. Áo khoác màu sẫm, quần gọn, giày đế mềm. Không đeo trang sức. Không mang hành lý lớn. Mặt tái vì thiếu ngủ nhưng mắt tỉnh, sắc và kín. Gò má có một vệt xước mảnh. Cổ tay trái cũng có một vết trầy đã se. Dáng cô thẳng, vai không co.
 
-Linh dừng cách họ khoảng hai mét, nhìn Bảy Dũng, rồi nhìn sang Khang.
+Linh dừng cách họ khoảng hai mét, nhìn Bảy Dũng rồi nhìn sang Khang.
 
 “Tài xế của tôi đây à?”
 
@@ -300,53 +311,57 @@ Giọng cô thấp, rõ, không run. Điều đó đáng giá hơn một lời g
 
 Khang hỏi ngay: “Cô biết tôi?”
 
-“Biết đủ để có thể tin tưởng.”
+“Biết đủ để tới gặp.”
 
 “Cô là ai?”
 
-“Biết ít có khi tốt hơn cho anh.”
+“Người đang cần ra khỏi thành phố.”
 
-“Cô đánh giá thấp tôi rồi.” Khang nhếch mép.
+“Còn gì nữa?”
 
-Linh nhìn thẳng anh hai nhịp. Rồi nói, gọn như cắt:
+Linh nhìn hắn hai nhịp rồi đáp, gọn như cắt: “Con gái Lê Đức Thành.”
 
-“Ba tôi bị sát hại đêm qua.”
-
-Khang không đổi sắc mặt. “Ông Lê Đức Thành.”
+Khang không đổi sắc mặt. “Ông ta chết rồi.”
 
 “Phải.”
 
-“Cô là con gái ông Thành?”
+“Cô cần gì ở tôi?”
 
-“Đúng.”
+“Đường ra.”
 
-"Cô cần gì ở tôi?"
+Khang nhìn kỹ hơn. Cô không nói nhiều, nhưng không né. Loại người này hoặc rất liều, hoặc đã quen đứng trong áp lực đủ lâu để không còn phí hơi vào những câu vô ích.
 
-Linh không phản ứng vì câu nói lạnh ấy. Cô chỉ gật rất nhẹ. “Từ qua đến giờ có ba nhóm đi tìm tôi. Một nhóm của người cũ bên ba tôi. Một nhóm của Kim Long. Nhóm thứ ba chưa rõ, nhưng có vẻ là cớm.”
+“Có bao nhiêu bên đang tìm cô?”
 
-Khang hỏi: “Công an?”
+“Ít nhất ba.”
+
+“Bên nào?”
+
+“Một nhóm người cũ của ba tôi. Một nhóm của Kim Long. Nhóm còn lại chưa rõ, nhưng di chuyển kiểu cơ quan.”
+
+“Công an?”
 
 “Có thể. Hoặc ai đó muốn trông như công an.”
 
-“Cô có điện thoại?”
+“Cô còn dùng điện thoại cũ không?”
 
-“Không dùng máy chính. Không đăng nhập gì từ đêm qua. Không thẻ. Chỉ tiền mặt.”
+“Không. Không máy chính, không thẻ, không tài khoản. Chỉ tiền mặt.”
 
-Khang gật khẽ. Câu trả lời đủ cho thấy cô không phải loại tiểu thư mới gặp biến là vỡ trận.
+Khang gật nhẹ. Đủ.
 
-Bảy Dũng chen vào: “Nó cần ra khỏi Sài Gòn sớm.”
+Bảy Dũng chen vào. “Nó cần ra khỏi Sài Gòn sớm.”
 
-Linh nói tiếp luôn: “Đêm mai.”
+Linh nói tiếp: “Tối mai.”
 
-Khang trả lời ngay: “Không được”
+Khang trả lời ngay: “Không được.”
 
-Cả Bảy Dũng lẫn Linh đều không ngờ anh bác nhanh đến vậy.
+Cả Bảy Dũng lẫn Linh đều khựng lại một nhịp.
 
 Linh hỏi: “Vì sao?”
 
-“Vì đi đêm mai là tự nộp mình.”
+“Vì đi tối mai là tự nộp mình.”
 
-“Tôi không có nhiều thời gian.” Linh đáp.
+“Tôi không có nhiều thời gian.”
 
 “Chính vì không có nhiều thời gian nên càng không được đi ngu.”
 
@@ -354,121 +369,95 @@ Không khí giữa ba người khựng lại. Gió ngoài sông thốc qua làm 
 
 Khang bước nửa bước sang trái, nhìn dọc lối container rồi mới nói tiếp:
 
-“Tôi cần ba ngày.”
-
-Bảy Dũng cau cậu. “Ba ngày là quá lâu.”
-
-“Chưa đủ lâu.”
-
-Lão hạ giọng: “Cửa sổ tốt nhất là đêm mai.”
-
-Khang quay sang nhìn lão. “Ông gọi tôi tới đây vì muốn một thằng biết chạy đường, hay muốn một thằng liều mạng đạp ga?”
-
-“Khác gì nhau.”
-
-“Khác giữa tới nơi với chết dọc đường.”
-
-Bảy Dũng im. Khang nói tiếp, giọng đều, chắc, không lớn tiếng:
-
-“Trong tình trạng này, đi đêm mai là sai từ đầu. Chúng ta không có xe sạch. Không có biển sạch. Không có lộ trình giả. Không có trạm dừng đã kiểm. Không biết bên nào đang giữ camera ở cửa ngõ. Không biết cây xăng nào có người cắm. Không biết ai trong mạng cũ của anh đã bán mình. Đi là chết.”
-
-Linh khoanh hai tay trước ngực. “Ở đây lâu, tôi không an toàn.”
-
-“Đúng. Nhưng nếu đi ngay, họ không cần khoanh vùng nữa.”
-
-Cô nhìn anh, ánh mắt lạnh hơn. “Anh luôn nói theo kiểu dập hết mọi cửa?”
-
-“Tôi chỉ đóng mấy cửa dẫn thẳng vào quan tài.”
-
-Bảy Dũng khẽ nhếch mép, nhưng không cười ra tiếng.
-
-Linh hỏi: “Nếu không đi tối mai, anh muốn thế nào?”
-
 “Thứ bảy.”
 
-“Ba ngày nữa?”
+“Ba ngày nữa?” Linh hỏi.
 
 “Ừ.”
 
-“Lý do.”
+Bảy Dũng cau mày. “Lâu quá.”
 
-Khang nói ngay, từng ý không cần nghĩ:
+“Chưa đủ lâu, nhưng vậy là mức còn chịu được.”
 
-“Ngày đầu cắt dấu, đổi chỗ, làm cho người ta tin cô còn ở nội thành. Ngày thứ hai dựng hai hướng giả và hai xe mồi. Ngày thứ ba nhìn trước các nút nghẽn, trạm cân, camera, cây xăng, bãi nghỉ. Tới lúc xuất phát, người bám cô phải nhìn thấy một hướng, ngửi thấy một hướng khác, và đuổi theo hướng sai đủ lâu.”
+Lão hạ giọng. “Cửa sổ tốt nhất là đêm mai.”
 
-Linh im một lúc. “Anh nói như thể anh vẫn còn cả đội.”
+Khang quay sang nhìn lão. “Ông gọi tôi tới đây vì muốn một thằng biết chạy đường, hay muốn một thằng liều mạng đạp ga?”
+
+Bảy Dũng im.
+
+Khang nói tiếp, giọng đều, chắc: “Hiện giờ không có xe sạch. Không có biển sạch. Không có lộ trình giả. Không có trạm dừng đã kiểm. Không biết bên nào đang giữ camera ở cửa ngõ. Không biết cây xăng nào có người cắm. Cũng không biết trong mạng cũ của ông còn ai bán được. Đi đêm mai là chết.”
+
+Linh khoanh tay trước ngực. “Vậy ba ngày đó anh làm gì?”
+
+“Cắt dấu. Đổi chỗ. Dựng ít nhất hai hướng giả và một xe mồi. Nhìn trước các nút nghẽn, trạm cân, camera, cây xăng, bãi nghỉ. Tới lúc xe lăn bánh, người bám cô phải thấy một hướng, ngửi thấy một hướng khác, rồi đuổi theo hướng sai đủ lâu.”
+
+Linh nhìn hắn. “Anh nói như thể anh vẫn còn cả đội.”
 
 “Đội tan rồi. Kinh nghiệm thì chưa.”
 
-Một thoáng sáng trắng vỡ lên đâu đó trong đầu Khang. Kính chắn gió nổ tung. Mưa. Máu. Tiếng ai đó gọi tên anh giữa mùi khét.
+Một thoáng sáng trắng vỡ lên đâu đó trong đầu Khang. Kính chắn gió nổ tung. Mưa. Máu. Tiếng ai đó gọi tên hắn giữa mùi khét.
 
-Anh chớp mắt, kéo mình ra khỏi ý nghĩ đó.
+Hắn chớp mắt, kéo mình ra khỏi ý nghĩ đó.
 
-“Có những sai lầm trên đường,” anh nói, giọng thấp đi nửa tông, “chỉ cần mắc một lần.”
+“Có những sai lầm trên đường,” hắn nói, giọng thấp đi nửa tông, “chỉ cần mắc một lần.”
 
-Linh nhận ra câu đó không chỉ dành cho chuyến đi này. Nhưng cô không hỏi thêm. Người biết chịu áp lực thường cũng biết lúc nào không nên chạm vào vết thương của người khác.
+Linh nhận ra câu đó không chỉ dành cho chuyến đi này. Nhưng cô không hỏi.
 
-Cô nói: “Tối mai tôi định ra bằng đường sông, đổi xe ở Nhà Bè, rồi vòng lên Long An.”
+Cô nói: “Tối mai tôi tính ra bằng đường sông, đổi xe ở Nhà Bè rồi vòng lên Long An.”
 
 Khang lắc đầu. “Không ổn.”
 
 “Vì?”
 
-“Vì đó là phương án thông minh đầu tiên mà bất kỳ kẻ nào săn cô cũng sẽ nghĩ tới.”
+“Vì đó là phương án thông minh đầu tiên mà bất kỳ thằng nào đang săn cô cũng sẽ nghĩ tới.”
 
 “Anh chắc chứ?”
 
 “Đủ chắc để không đặt mạng mình lên đó.”
 
-Bảy Dũng nhìn sang Linh. “Để cậu ấy nói.”
+Bảy Dũng nhìn sang Linh. “Nghe cậu ấy đi.”
 
-Linh không đáp ngay. Cô đưa mắt nhìn ra sông, nơi màn sương mỏng đang dạt qua mũi một con tàu hàng neo xa. Khi quay lại, nét mặt cô vẫn kín như cũ.
-
-“Tôi không cần ai cứu,” cô nói. “Tôi cần ra khỏi thành phố.”
+Linh im một lúc, rồi nói: “Tôi không cần ai cứu. Tôi cần ra khỏi thành phố.”
 
 “Vậy càng phải sống đủ lâu tới lúc xe lăn bánh,” Khang đáp.
 
 “Anh nghĩ tôi là gánh nặng?”
 
-“Chưa biết. Nhưng tôi biết cô đang chạy trốn, và kẻ nào đang săn đuổi cô. Nếu chúng nó bắt được cô, tôi cũng chết.”
-
-Linh nhìn anh kỹ hơn. “Ý anh là gì?”
-
-“Ý tôi là nếu chỉ để giết cô, họ đã không dùng tới từng ấy người và từng ấy kiểu săn khác nhau.”
+“Chưa biết. Nhưng tôi biết nếu bọn đó chỉ muốn giết cô, chúng đã không cần từng ấy người và từng ấy kiểu săn khác nhau.”
 
 Bảy Dũng liếc cô.
 
-Linh không lộ phản ứng. Chỉ sau một nhịp, cô nói: “Trước lúc chết, ba tôi đã gửi một tin nhắn.”
+Linh không lộ phản ứng. Chỉ sau một nhịp, cô nói: “Trước lúc chết, ba tôi để lại cho tôi một mã khẩn.”
 
-“Tin nhắn gì?”
+Khang nhìn thẳng vào cô. “Chính là dòng mã đăng ở mục rao vặt?”
 
-“Tôi không biết, một địa điểm, chắc vậy.”
+“Phải.”
 
-“Trong đó có gì?” Khang hỏi.
+“Ai dạy cô dùng nó?”
 
-“Đủ để giữ mạng sống của tôi.”
+“Ông ấy. Từ lâu rồi. Chỉ dặn rằng nếu có ngày phải bật mã đó, nghĩa là không còn đường bình thường nào nữa.”
 
-Khang nhìn cô, lần đầu thấy rõ lớp thép mỏng giấu dưới vẻ điềm tĩnh kia. Đúng như anh đoán, cô không chỉ là người cần kéo đi. Cô còn là một phần của bàn cờ. Có thể là quân mà ai cũng muốn giữ sống, cũng có thể là cái chìa khóa khiến cả đám sẵn sàng đạp đổ mọi luật còn sót lại.
+Bảy Dũng lên tiếng, ngắn và khô: “Đó là lý do tôi nhận ra case này là thật.”
 
-“Cô còn giữ tin nhắn không?” anh hỏi.
+Khang hỏi Linh: “Ngoài mã đó, ông ta còn để gì cho cô?”
 
-“Có, nhưng tôi không mang theo.”
+“Một đầu mối. Chưa tới lúc anh cần biết.”
 
-“Có ai biết nội dung tin nhắn không?”
+“Có ai khác biết không?”
 
 “Có thể có. Không chắc.”
 
-Khang gật rất nhẹ. Một câu trả lời vừa đủ thật để không thành dối trắng.
+Khang gật rất nhẹ. Câu trả lời vừa đủ thật để không thành dối trắng.
 
 Đúng lúc đó, từ cuối dãy container vọng lại một tiếng kim loại va vào nhau rồi tắt.
 
 Cả ba cùng im ngay lập tức.
 
-Khang nghiêng đầu nghe. Không quay mạnh. Không làm động tác thừa. Gió tiếp tục luồn qua những khe thép, mang theo tiếng nước vỗ lóc bóc vào mạn tàu. Không thêm tiếng bước chân nào. Nhưng anh biết vừa rồi không phải gió.
+Khang nghiêng đầu nghe. Không quay mạnh. Không làm động tác thừa. Gió tiếp tục luồn qua những khe thép, mang theo tiếng nước vỗ lóc bóc vào mạn tàu. Không thêm tiếng bước chân nào. Nhưng hắn biết vừa rồi không phải gió.
 
-“Có người,” anh nói khẽ.
+“Có người,” hắn nói khẽ.
 
-Bảy Dũng hỏi rất nhỏ: “Người của Tôi?”
+Bảy Dũng hỏi rất nhỏ: “Người của tôi?”
 
 “Hy vọng thế.”
 
@@ -480,21 +469,21 @@ Khang nhìn quanh lần cuối rồi nói dứt khoát:
 
 Bảy Dũng thở ra bằng mũi. Linh không nói gì.
 
-“Nhưng xuất phát vào thứ bảy,” Khang nói tiếp. “Không phải đêm mai.”
+“Nhưng xuất phát vào thứ bảy,” Khang nói tiếp. “Không phải tối mai.”
 
-Bảy Dũng mở miệng, nhưng anh chặn luôn.
+Bảy Dũng mở miệng, nhưng Khang chặn luôn.
 
-“Ba ngày. Trong ba ngày đó, cô biến mất hoàn toàn. Không dùng số cũ. Không tự đổi chỗ nếu không báo. Không gặp ai ngoài đầu mối tôi chỉ. Tôi sẽ liên hệ lại.”
+“Ba ngày. Trong ba ngày đó, cô biến mất hoàn toàn. Không số cũ. Không tự ý đổi chỗ nếu chưa báo. Không gặp ai ngoài đầu mối tôi chỉ. Tôi sẽ liên hệ lại.”
 
 Linh hỏi: “Nếu trong ba ngày họ tìm ra tôi?”
 
-Khang nhìn vào khoảng sáng xám đang dần hiện sau lưng những cần cẩu. “Thì có nghĩa là chúng ta đã thua trước khi đi.”
+Khang nhìn vào khoảng sáng xám đang dần hiện sau lưng những cần cẩu. “Thì có nghĩa là mình thua trước khi đi.”
 
 Câu trả lời lạnh, nhưng sạch.
 
-Linh giữ im lặng một lúc rất lâu. Rồi cô gật đầu. Một cái gật ngắn, cứng, không hề yếu đuối.
+Linh im lặng một lúc rất lâu. Rồi cô gật đầu. Một cái gật ngắn, cứng.
 
-“Tôi chờ đến thứ bảy,” cô nói.
+“Tôi chờ tới thứ bảy,” cô nói.
 
 “Không phải chờ,” Khang đáp. “Ẩn. Hai việc khác nhau.”
 
@@ -506,25 +495,25 @@ Khang nhìn lão. “Đừng dùng người cũ quá thân với ông Thành.”
 
 “Vì lúc này người biết ơn và người phản chủ nhìn rất giống nhau.”
 
-Bảy Dũng nhếch miệng. “cậu vẫn cay nghiệt như xưa.”
+Bảy Dũng nhếch miệng. “Cậu vẫn cay nghiệt như xưa.”
 
-“Nhờ vậy mới chưa bị chôn.”
+“Nhờ vậy tôi mới chưa bị chôn.”
 
 Một tiếng còi tàu kéo dài qua mặt sông xám đục. Trời bắt đầu sáng thêm, nhưng bến cảng không vì thế mà bớt tối. Những nơi như thế này chỉ đổi màu, không đổi bản chất.
 
-Khang quay người về phía xe. Anh biết kể từ giây phút này, đời sống kín như một cái hốc của anh đã rạn ra một đường. Chưa lớn. Nhưng đủ để gió quá khứ lùa vào.
+Khang quay người về phía xe. Hắn biết kể từ giây phút này, đời sống kín như một cái hốc của mình đã rạn ra một đường. Chưa lớn. Nhưng đủ để gió quá khứ lùa vào.
 
-Một cuộc gọi giữa đêm. Một cái tên cũ. Một người đàn bà cầm chìa khóa của nhiều bí mật hơn cô nói. Và ba ngày chờ trước khi xe thật sự lăn bánh.
+Một cuộc gọi giữa đêm. Một cái tên cũ. Một người đàn bà cầm nhiều bí mật hơn cô nói. Và ba ngày chờ trước khi xe thật sự lăn bánh.
 
 Ba ngày nghe ngắn.
 
 Nhưng với những người đã bước vào cuộc chơi này, ba ngày là đủ để một kẻ bị bán đứng, một chỗ ẩn biến thành nấm mồ, một ký ức cũ trồi lên khỏi bùn và cắn ngược vào cổ người đang cố quên nó.
 
-Khang mở cửa xe, dừng tay trên nóc xe một nhịp. Trong đầu anh, ánh đèn pha đêm mưa lại lóe lên thêm lần nữa rồi tắt.
+Khang mở cửa xe, dừng tay trên nóc xe một nhịp. Trong đầu hắn, ánh đèn pha đêm mưa lại lóe lên thêm lần nữa rồi tắt.
 
-Vụ tai nạn năm ấy không chết. Nó chỉ đứng đâu đó trong bóng tối, kiên nhẫn chờ anh quay lại đường.
+Vụ tai nạn năm ấy không chết. Nó chỉ đứng đâu đó trong bóng tối, kiên nhẫn chờ hắn quay lại đường.
 
-Anh lên xe, nổ máy.
+Hắn lên xe, nổ máy.
 
 Giữa hai dãy container lạnh ngắt, tiếng động cơ Mercedes trầm và gọn như một lời hứa xấu.
 
@@ -532,4 +521,4 @@ Thứ bảy còn ba ngày.
 
 Đủ để chuẩn bị.
 
-Cũng đủ để mọi thứ bắt đầu săn họ thật sự.
+Cũng đủ để cuộc săn bắt đầu thật sự.
