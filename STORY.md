@@ -6,7 +6,7 @@ Bản nền cốt truyện đã được chốt sơ bộ để tiếp tục phá
 ---
 
 ## Premise cốt lõi
-Một cựu tài xế 39 tuổi, từng dính sâu vào các chuyến vận chuyển ngầm, sống ẩn mình sau bi kịch mất vợ và phải giấu kín con gái nhỏ ở Hà Nội, buộc phải quay lại cầm lái khi nhận nhiệm vụ đưa con gái của một ông trùm xã hội đen từ TP.HCM ra Đà Nẵng. Người phụ nữ ấy không chỉ đang bị truy sát sau cái chết của cha mình, mà còn là chìa khóa dẫn tới bí mật về kho vàng chiến tranh thất lạc.
+Một cựu tài xế 39 tuổi, từng dính sâu vào các chuyến vận chuyển ngầm, sống ẩn mình sau bi kịch mất vợ và phải giấu kín con gái nhỏ ở Hà Nội, buộc phải quay lại cầm lái khi nhận nhiệm vụ đưa con gái của một ông trùm xã hội đen từ TP.HCM ra Đà Nẵng. Người phụ nữ ấy không chỉ đang bị truy sát sau cái chết của cha mình, mà còn là chìa khóa dẫn tới bí mật về kho vàng chiến tranh thất lạc cũng có thể dẫn tới bí mật về vụ tai nạn khiến cự tài xế mất vợ.
 
 ---
 
@@ -24,13 +24,13 @@ Một cựu tài xế 39 tuổi, từng dính sâu vào các chuyến vận chuy
 - Hiện tại: đã rời bỏ nghề, chỉ muốn sống yên ổn
 
 ### Biến cố quá khứ
-Nam chính bỏ nghề sau một vụ tai nạn giao thông thảm khốc xảy ra trong lúc hắn đang trên đường làm một chuyến vận chuyển.
+Nam chính bỏ nghề sau một vụ tai nạn giao thông thảm khốc xảy ra trong lúc hắn đang trên đường làm nhiệm vụ.
 
 Trong vụ đó:
 - vợ hắn đang mang thai gần đến ngày sinh đã thiệt mạng
 - đứa bé được cứu sống, sinh non và sống sót
 - công an kết luận đây chỉ là một vụ tai nạn giao thông thông thường
-- nhưng sự thật là tai nạn không phải do hắn gây ra
+- nhưng sự thật về vụ tai nạn vẫn còn là bí ẩn
 - có một kẻ khác đứng sau hoặc trực tiếp tạo ra vụ va chạm
 - chuyện này đến giờ vẫn là bí mật, chưa bị lật lại
 
@@ -40,7 +40,7 @@ Trong vụ đó:
 - luôn nghi ngờ rằng hôm đó không hề ngẫu nhiên
 - không cần tiền, chỉ cần bình yên và an toàn cho con gái
 
-### Con gái - Trần An Nhi
+### Con gái - An Nhi
 - khoảng 3 tuổi
 - đang được dì nuôi và chăm sóc ở Hà Nội
 - nam chính phải giấu kín quan hệ cha con vì từng gây thù với giới xã hội đen
@@ -61,9 +61,9 @@ Một ông chủ cũ gọi hắn quay lại để vận chuyển một "đơn h�
 
 ---
 
-## Nữ chính - Lê Khánh Linh
+## Nữ chính - Khánh Linh
 - Giới tính: nữ
-- Tuổi: khoảng 35
+- Tuổi: khoảng 25
 - Là con gái của một ông trùm xã hội đen
 
 ### Hoàn cảnh
@@ -73,6 +73,7 @@ Một ông chủ cũ gọi hắn quay lại để vận chuyển một "đơn h�
 - mục tiêu sâu hơn: tìm cơ hội trả thù
 
 ### Sơ hở dẫn tới truy sát
+Dựa vào thông tin cha để lại trước lúc chết, cô sử dụng nó đăng 1 tin rao vặt lên báo tìm sự giúp đỡ.
 Trong lúc tìm kiếm thông tin taxi để bỏ trốn, cô để lộ dấu vết.
 Đám xã hội đen lần ra và mở cuộc săn lùng.
 
@@ -83,6 +84,7 @@ Cô gái không chỉ là người thừa kế cuối cùng.
 Cô còn là chìa khóa dẫn tới một kho báu lịch sử:
 - truyền thuyết về 100.000 thỏi vàng
 - được giấu từ thời chiến tranh Việt Nam - Mỹ
+- chìa khóa tìm ra sự thật vụ tai nạn xe
 
 ### Cấu trúc bí mật
 - cha cô, Lê Đức Thành, giữ một phần bí mật
@@ -96,7 +98,7 @@ Chi tiết "100.000 thỏi vàng" nên được xử như một huyền thoại 
 
 ## Phản diện chính - Trần Kim Long
 - là tên phó tướng thân tín cũ của cha cô
-- phản chủ, giết ông trùm Lê Đức Thành
+- phản chủ, giết ông trùm Lê Thành
 - mục tiêu:
   - cướp quyền lực trong bang
   - tìm ra kho vàng

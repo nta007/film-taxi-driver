@@ -64,7 +64,7 @@ Giọng người đàn ông vẫn đều đều.
 
 Một khoảng lặng. Rồi đầu dây kia nói chậm, rõ từng chữ:
 
-“nguồn tin báo răng có kẻ đang tìm thông tin bé Nhi ”
+“Có người đang dò hỏi về bé Nhi.”
 
 Căn phòng nhỏ như bị rút hết không khí.
 
@@ -76,7 +76,7 @@ Khang không cử động. Chỉ có quai hàm hắn siết lại. Một giọt 
 
 Cái tên rơi xuống như một cục chì.
 
-Khang tựa lưng vào ghế nhựa, ngước nhìn bóng đèn trắng rung rung trên đầu. Sáu năm rồi. Sáu năm không gặp, không hỏi, không dính dáng. Hắn tưởng cái tên đó đã chìm luôn cùng đống sim đập bỏ và những tuyến đường bị cố ý quên đi.
+Khang tựa lưng vào ghế nhựa, ngước nhìn bóng đèn trắng rung rung trên đầu. Sáu năm rồi. Hắn tưởng cái tên đó đã chìm luôn cùng đống sim đập bỏ và những tuyến đường bị cố ý quên đi.
 
 Nhưng trí nhớ con người có những ngăn kéo hỏng. Chỉ cần một cú giật là bung ra.
 
@@ -92,9 +92,11 @@ Khang nhìn ra con hẻm tối, nơi nước mưa đang kéo rác trôi dọc m�
 
 "không phải muốn gì ở cậu, mà muốn trừ khử" nghe này.
 
-"Ba thằng lái xe cho tôi, 2 thằng mất tích, 1 thằng thấy xác dưới xông"
+"Ba thằng lái xe cho tôi.
+Hai thằng mất tích.
+Một thằng được vớt dưới kênh, tay còn còng vô lăng."
 
-"Tôi e, người tiếp theo là cậu"
+"Tôi nghĩ cậu hiểu rồi đấy."
 
 “Ông muốn gì?” hắn hỏi.
 
@@ -130,7 +132,10 @@ Tiệm sửa xe bỗng nhỏ lại. Tiếng quạt, tiếng mưa, tiếng neon r
 
 Khang đứng dậy, đi ra cửa. Hắn vén tấm bạt nhựa che mưa, nhìn con hẻm vắng. Một con chó vàng ướt sũng nằm co dưới mái hiên đối diện. Xa hơn là đèn đỏ nhấp nháy ở ngã tư như con mắt mất ngủ.
 
-“Ông Bảy,” hắn nói, giọng thấp đi, “nghe rõ đây. Tôi không còn nợ ai. Cũng không nhận việc từ ai. Đời tôi bây giờ đơn giản lắm. Sửa xe, ăn cơm, ngủ. Hết.”
+“Ông Bảy,” hắn nói, giọng thấp đi, “nghe rõ đây. Tôi không còn nợ ai. Cũng không nhận việc từ ai. “Đời tôi bây giờ đơn giản lắm.
+Sửa xe. Ăn cơm. Ngủ.”
+Hắn dừng lại một nhịp.
+“Và tôi muốn nó tiếp tục như vậy.”
 
 “Đời cậu mà đơn giản thì người chết biết khóc mất.”
 
@@ -239,6 +244,8 @@ Trong khoảnh khắc rất ngắn, hắn lại thấy ánh đèn pha trắng l�
 Hắn chớp mắt. Hình ảnh biến mất.
 
 Khang tra chìa khóa, xoay một vòng dứt khoát.
+
+---
 
 Bốn giờ. Cầu Chữ Y.
 Sài Gòn vẫn mưa.
